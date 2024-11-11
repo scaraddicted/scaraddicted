@@ -15,6 +15,6 @@
 ♡ 　he */* they　;　**5**teen　　‎
 
 
-usually offtab　*or*　w/ my bff　‎<3
+usually offtab　*or*　w/ my bff　‎<3　‎w2i !
 
 [rentry](https://rentry.co/scaraddicted)　[ata](https://scaraddicted.atabook.org/)　[strawpage](https://scaraddicted.straw.page/)
