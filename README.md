@@ -17,4 +17,4 @@
 
 usually offtab　*or*　w/ my [bff](https://github.com/tartagliaddicted)　‎<3　‎w2i + free cuds !
 
-[rentry](https://rentry.co/scaraddicted)　[ata](https://scaraddicted.atabook.org/)　[strawpage](https://scaraddicted.straw.page/)
+[rentry](https://rentry.co/scaraddiction)　[ata](https://scaraddicted.atabook.org/)　[strawpage](https://scaraddicted.straw.page/)
