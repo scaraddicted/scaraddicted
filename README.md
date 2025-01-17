@@ -12,7 +12,7 @@
 <div id="header" align="center">
 
 
-♡ 　he⠀  ⁄ ⠀they　  ⋮ 　**5**teen　  ⋮ 　‎non-sharing wanderer yume >_<　　‎
+♡ 　he⠀  ⁄ ⠀they　  ⋮ 　**5**teen　  ⋮ 　‎non-sharing  wanderer  yume　>_<　
 
 
 usually offtab　*or*　w/ my [bff](https://github.com/tartagliaddicted)　‎<3　‎w2i + free cuds !
