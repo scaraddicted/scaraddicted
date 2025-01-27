@@ -15,8 +15,10 @@
 ♡ 　he⠀  ⁄ ⠀they　  ⋮ 　**5**teen　  ⋮ 　‎non-sharing  wanderer  yume　>_<　
 
 
-usually offtab　*or*　w/ my  <ins>friends</ins>　‎<3　‎w2i + free cuds !
+usually offtab　*or*　w/ my  <ins>friends</ins>　‎`<3`　‎w2i + free cuds !
 
 [rentry](https://rentry.co/scaraddiction)　[ata](https://scaraddicted.atabook.org/)　[strawpage](https://scaraddicted.straw.page/)
 
-dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀˚‧꒰ა ☆ ໒꒱ ‧₊⠀ ⠀literally⠀any⠀kind⠀of⠀wanderer/scara/kabukimono⠀shippers⠀**DNI** 😧
+⠀     
+
+dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ ⠀if⠀u⠀ship⠀wanderer/scara/kabukimono⠀with⠀*anyone*⠀**DNI** 😧
