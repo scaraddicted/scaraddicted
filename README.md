@@ -21,4 +21,4 @@ usually offtab　*or*　w/ my  <ins>friends</ins>　‎`<3`　‎w2i + free cuds
 
 ⠀     
 
-dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ ⠀if⠀u⠀ship⠀wanderer/scara/kabukimono⠀with⠀*anyone*⠀**DNI** 😧
+dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ ⠀if⠀u⠀ship⠀wanderer/scara/kabukimono⠀with⠀*anyone*⠀**DNI** ... ⁉⁉😧
