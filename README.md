@@ -30,17 +30,29 @@ dont⠀copy⠀my⠀ponies⠀uhm⠀ ⠀`˚‧꒰ა ☆ ໒꒱ ‧₊`⠀ doubles
 
 ***TARGETTED DNIs:***
 if u tell ppl to dni "if theyre mean (even as jokes)" but then youre mean yourself
+
 your entire personality is shit talking people (even your FRIENDS) (get a grip on reality)
+
 youre scared of 'kys/kms' jokes then go ahead and wish people the worst
+
 u make rape jokes and dont even deny it when confronted  wtf u creep u weird asf heavy dni
+
 youre scared of confrontation
+
 you dont know what 'yume' means (google is free) (stop shaming cultures)
+
 youre triggered being called an "it"
+
 ur entire personality is shipping scara with kazuha and childe and dottore and tighnari and furina (wtf? :sob:)
+
 u think youre childe irl but childe would hate u if he knew who u r u freak
+
 yoirw twrrified of missprlls wtf im sprry
+
 you have an ugly carrd
+
 u have shit music taste and have the audacity to share it on ur profile
+
 u call urself "childe irl trust" but u dont even have him as ur fav character get out u fake fan creep u dont deserve him take that off ur profile
 
 thank u have a great day except for mfs in my dni u creep
