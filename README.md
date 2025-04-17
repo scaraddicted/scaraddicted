@@ -55,5 +55,7 @@ u have shit music taste and have the audacity to share it on ur profile
 
 u call urself "childe irl trust" but u dont even have him as ur fav character get out u fake fan creep u dont deserve him take that off ur profile
 
+thank u so much have a great day except for mfs that fit my dni u freak freakster freaky freaks 
+
 thank u have a great day except for mfs in my dni u creep
 u have "ppl who think #abcdefghijklmnop is blue" in ur dni but im literally colorblind and thats lowk ableist idk hear me out u weirdo
