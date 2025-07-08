@@ -5,10 +5,10 @@
 　　‎
   
 <p align="center">
-<img src="https://file.garden/Z0S_tEmCggxGeVI8/wawaaaaa.png" width="36%" height="36%"> 
+<img src="https://images4katori.carrd.co/assets/images/image09.png?v=e20802ee" width="36%" height="390%"> 
 </p>
-
 ⠀
+
 
 <div id="header" align="center">
 
