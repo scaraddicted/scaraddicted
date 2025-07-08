@@ -5,7 +5,7 @@
 　　‎
   
 <p align="center">
-<img src="[https://images4katori.carrd.co/assets/images/image09.png?v=e20802ee](https://file.garden/Z0S_tEmCggxGeVI8/wa.png)" width="36%" height="36%"> 
+<img src="[https://file.garden/Z0S_tEmCggxGeVI8/wa.png](https://file.garden/Z0S_tEmCggxGeVI8/wawaaaaa.png]" width="36%" height="36%"> 
 </p>
 
 ⠀
